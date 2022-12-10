@@ -20,11 +20,11 @@ Free update
 24/7 Support
 Escrow/Middle man Allowed
 
-Buy via [TELEGRAM](https://t.me/uncodeboss]
+Buy via [TELEGRAM](https://t.me/uncodeboss)
 
 Buy via [EMAIL](mailto:uncodeboss@gmail.com)
 
-Buy via [SELLEX]()
+Buy via [SELLIX]()
 
 Fore more info or details about group you can contact me t.me/uncodeboss
 The best vip group In the world...
