@@ -2,7 +2,7 @@ Hello friends,
 
 ***As people know, We made ( Vip-Membership-Group )
 You get all our exploits & tools
-All exploits are private and famous like tools other don`t made and don`t have
+All exploits are private and famous like tools other dont made and dont have
 You get many method and courses like botnet & bug bounty courses and methods
 Also we can making custom exploits and tools for you from or by your idea or suggestion
 You get source codes of our exploits and tools 
